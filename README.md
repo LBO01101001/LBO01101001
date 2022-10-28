@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Brito
+- 📫 How to reach me: oliveralucasbrito@gmail.com
+- It took me a while to understand... now I need to remember what it was!! '*-*'
